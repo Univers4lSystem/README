@@ -43,6 +43,9 @@ ___
 
 
 we do not mind ships! if we do we will simply not reciprocate anything or tell you.
+
+we don't really have any boundaries other than the DNIs above, we'll block if we don't like you lmao
+
 ___
 
 
